@@ -1,0 +1,4 @@
+- ¿Cómo se llama el campeón de buceo japonés?
+- Tokofondo.
+- ¿Y el subcampeón?
+- Kasitoko.
